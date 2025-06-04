@@ -19,5 +19,3 @@ Learning from experienced professionals
 
 Connecting with fellow tech enthusiasts
 
-Let’s connect!
-Whether you want to share ideas, work together, or just geek out about fintech trends—feel free to reach out here on LinkedIn!
